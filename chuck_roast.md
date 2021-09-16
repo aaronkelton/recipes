@@ -33,3 +33,9 @@ It takes 15 minutes to get up to temp.
 
 ### Visual indicator of pressure seal
 <img width="300" src="https://user-images.githubusercontent.com/6170077/133523734-23c7db3c-a1ea-45aa-b28f-aa6bd06384a8.png">
+
+### Done in the Instant Pot
+<img width="300" src="https://user-images.githubusercontent.com/6170077/133622418-212abc75-d82b-4b0a-946c-0d8ddc6a8288.png">
+
+### Done chuck roast on the plate
+<img width="300" src="https://user-images.githubusercontent.com/6170077/133622440-1e91875b-4f9c-48a0-82fd-2a516d2cf630.png">

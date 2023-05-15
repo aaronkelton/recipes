@@ -1,4 +1,6 @@
+### Recipe Links
 * https://www.thetonytownie.com/single-post/2017/08/03/toddler-time-yogurt-cake-from-bringing-up-b-c3-a9b-c3-a9
+* https://myfrenchkitchen-ronelle.com/2014/04/26/yoghurt-cake-and-a-scientific-baker/
 
 Mix wet:
 * 2 6-oz yogurt containers

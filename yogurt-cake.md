@@ -5,6 +5,7 @@ Mix wet:
 * 2 eggs
 * 1 container vegetable oil
 * 1 tsp vanilla extract
+* 2 containers sugar (add a reference link for why sugar is supposed to be added with wet)
 
 Mix dry:
 * 4 containers of flour
